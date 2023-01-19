@@ -14,7 +14,7 @@
  
  <br>
  
-  ### Pra me conhecer. me segue nas redes abaixo!
+  ### Pra me conhecer, me segue nas redes abaixo!
  
 <div> 
  
